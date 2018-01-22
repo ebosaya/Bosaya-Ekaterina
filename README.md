@@ -13,4 +13,4 @@
 В свободное время я люблю заниматься спортом. Я предпочитаютакие виды спорта ,как танцы и волейбол. Люблю  читать. Любимая книга "Мастер и Маргарита".
 ![картинка](http://knijky.ru/sites/default/files/styles/264x390/public/31583.jpg?itok=rm1YiVJV)
 ## Моя контактная информация 
-[текст](https://www.instagram.com/ecaterina657/)
+* Инстаграм [ecaterina657](https://www.instagram.com/ecaterina657/)
