@@ -14,4 +14,8 @@
 ![картинка](http://knijky.ru/sites/default/files/styles/264x390/public/31583.jpg?itok=rm1YiVJV)
 ## Моя контактная информация 
 * Инстаграм [ecaterina657](https://www.instagram.com/ecaterina657/)
-* Почта<ebosaya@edu.hse.ru>
+* Почта <ebosaya@edu.hse.ru>
+## Мое расписание по латинскому языку на январь 2018 г.
+| __Дата__ | __День__ | __Начало__ | __Окончание__ | __Вид работ__ | __Здание__ | __Аудитория__ |
+|:---|:---|:---
+
