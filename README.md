@@ -14,3 +14,4 @@
 ![картинка](http://knijky.ru/sites/default/files/styles/264x390/public/31583.jpg?itok=rm1YiVJV)
 ## Моя контактная информация 
 * Инстаграм [ecaterina657](https://www.instagram.com/ecaterina657/)
+* Почта<ebosaya@edu.hse.ru>
